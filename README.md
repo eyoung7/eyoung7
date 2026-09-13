@@ -22,4 +22,3 @@ My background spans B2B digital strategy, web, SEO, paid media, analytics, CRO, 
 ### Elsewhere
 
 - [LinkedIn](https://www.linkedin.com/in/emily-m-young/)
-- [Portfolio](https://www.emilymyoung.com)
